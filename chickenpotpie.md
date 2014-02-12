@@ -3,6 +3,18 @@
 ## Ingredients
 Chicken
 Pie crust
+Carrots
+Corn
+Potato
+Celery
+Butter
+Onion
+Flour
+Salt
+Pepper
+Celery Seed
+Broth
+Milk
 
 ## Directions
 
