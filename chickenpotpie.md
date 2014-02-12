@@ -17,8 +17,6 @@ Broth
 Milk
 
 ## Directions
-* Preheat oven to 425
-* Combine chicken, carrots, corn, potatoes, and celery.
 
 ## Notes
 You'll want mor ethan you can even make at one time.
